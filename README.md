@@ -22,4 +22,4 @@
 如果你希望安全获取“日本AV免费”资源，务必使用合规平台，关注内容更新频率，善用检索工具，避免点击广告陷阱，才能确保资源体验安全流畅。
 
 
-<span style="display:none;">[Canonical link]( https://github.com/ad0700925/14862 ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/ad0700925/148625 ）</span>
